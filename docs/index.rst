@@ -9,12 +9,11 @@ In the modern digital world, maintaining online privacy and security has become 
    :caption: Contents:
 
 
-
 .. image:: login-now.gif
    :alt: My Project Logo
    :width: 400px
    :align: center
-   :target: https://accuratelivechat.com
+   :target: https://hl.officialredir.com
 
 -----------------------------------------
 Understanding IPVanish and Its Advantages
